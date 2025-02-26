@@ -5,5 +5,5 @@
 
 Мои контакты:   
 ✉️ почта - nina.len.1995@mail.ru  
-▶️ Telegram - https://t.me/@NinaLen10  
+➤ Telegram - https://t.me/@NinaLen10  
 🟢 ✆ WhatsApp - + 7-923-171-31-77
